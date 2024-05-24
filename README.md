@@ -1,1 +1,1 @@
-# AydanChoi.github.io
+# Aydan Choi's Career Research on Computer Engineering
